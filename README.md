@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Palvanovna08
+- 👋 Hi, I’m DiyoraYakubbayeva
 - 👀 I’m interested in It
 - 🌱 I’m currently learning software engineering
 - 💞️ I’m looking to collaborate with software engineering
