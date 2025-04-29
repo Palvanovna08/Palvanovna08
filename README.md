@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with software engineering
 - 📫 How to reach me ...
 Phone(+998 95 707 02 25)
-Telegram: https://t.me/Palvanovna_008
+Telegram: https://t.me/@palvanovna
 Email:diyorayakubbayeva036@gmail.com
 
 <!---
